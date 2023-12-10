@@ -1,4 +1,4 @@
-# Olá, pessoal! 👋:slightly_smiling_face:
+# Olá, pessoal! 👋:smiling_face:
 
 
 Meu nome é **Paula** e sou uma grande entusiasta da área tech. 
